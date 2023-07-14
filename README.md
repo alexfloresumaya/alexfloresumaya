@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @alexfloresumaya
+- alexflores999 on discord
+- email: aflores@umaya.io
 - 👀 I’m interested in web development
 
 
